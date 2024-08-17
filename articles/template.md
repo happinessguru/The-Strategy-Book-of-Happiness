@@ -1,7 +1,7 @@
 # 发现男朋友（曾经）是渣男/海王/多偶男，要不要分手
 
 ## 知乎发布日期：2022-07-29
-<img src="https://github.com/happinessguru/The-Strategy-Book-of-Happiness/blob/main/images/%E5%8F%91%E7%8E%B0%E7%94%B7%E6%9C%8B%E5%8F%8B%EF%BC%88%E6%9B%BE%E7%BB%8F%EF%BC%89%E6%98%AF%E6%B8%A3%E7%94%B7%E6%B5%B7%E7%8E%8B%E5%A4%9A%E5%81%B6%E7%94%B7%E8%A6%81%E4%B8%8D%E8%A6%81%E5%88%86%E6%89%8B.jpg" width="400">
+<img src="https://github.com/happinessguru/The-Strategy-Book-of-Happiness/blob/main/images/%E5%8F%91%E7%8E%B0%E7%94%B7%E6%9C%8B%E5%8F%8B%EF%BC%88%E6%9B%BE%E7%BB%8F%EF%BC%89%E6%98%AF%E6%B8%A3%E7%94%B7%E6%B5%B7%E7%8E%8B%E5%A4%9A%E5%81%B6%E7%94%B7%E8%A6%81%E4%B8%8D%E8%A6%81%E5%88%86%E6%89%8B.jpg" width="360">
 
 ## 原文
 
